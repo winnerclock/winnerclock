@@ -6,4 +6,4 @@ art above by [@_synthgl0w](https://x.com/_synthgl0w/status/1797759261457690954?s
 
 all interactions encouraged! i would love to c+h and such i promise i do not bite smiiillee
 
-more links [here](https://guns.lol/drakoroxxer), including my discord (you wanna add me so mad) and [ata](https://mattimiya.atabook.org)!
+more links [here](https://guns.lol/drakoroxxer), including my discord (add me!) and [ata](https://mattimiya.atabook.org)!
