@@ -7,7 +7,7 @@
 
    <p align="center"
       
-<sub>wip!  ✿  [carrd](https://fauxsavior.carrd.co)  ✿  [ata](https://oyasumination.atabook.org/) </sub>
+<sub>[read this](https://thomzam.straw.page)  ✿  [carrd](https://fauxsavior.carrd.co)  ✿  [ata](https://oyasumination.atabook.org/)   ✿  [links](https://guns.lol/roxify) </sub>
 <br>
 <br>
 
