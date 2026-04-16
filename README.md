@@ -6,6 +6,8 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=winnerclock&label=constant%20companions&color=DCA656&style=flat" alt="winnerclock"/></p>
 
    <p align="center"
+
+   ✿ c+h & w2i freely ✿
       
 <sub>[read this](https://thomzam.straw.page)  ✿  [carrd](https://fauxsavior.carrd.co)  ✿  [ata](https://oyasumination.atabook.org/)   ✿  [links](https://guns.lol/roxify) </sub>
 <br>
